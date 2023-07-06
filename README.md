@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **reymundo.b.z@gmail.com**
 
-- 📄 Know about my experiences ([https://drive.google.com/file/d/1dMjxVPloqHjYjxYA_R0Ok5i68PBZTZt2/view?usp=share_link])(https://drive.google.com/file/d/13HCTT0IixO3ckjRvrR2Hi_62G34jkdpN/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1dMjxVPloqHjYjxYA_R0Ok5i68PBZTZt2/view?usp=share_link](CV)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
